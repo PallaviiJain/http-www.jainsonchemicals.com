@@ -1,0 +1,2 @@
+# http-www.jainsonchemicals.com
+Jainson Lab India is a leading producer &amp; supplier of chemicals and minerals that are mainly used to serve the following industries: Lead, Glass, Wire Rod, Rubber,Steel, Grey Iron, Foundaries, Cored wire, Alloy Steel foundaries, Grinding, wheel, Ceramics, Abrasives, Fertilisers, Frictions, Pesticides, Chemical Laboratories and Pigments. Apart from having a widespread distribution network in India, we also have efficient supply management chain overseas.
